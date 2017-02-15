@@ -1,1 +1,1 @@
-Hello. My name is Ola.
+Hello. My name is Ola. Studiujê na UKW.
